@@ -21,6 +21,20 @@ I need for Amazon to get a hold of president Joe Biden admin and tell him I said
 Reason to believes the rapture stealth fighter may need to change codes as well as all new development any GOV project need to start over from AI point and we have to develop the VM and cloud computing . as well anything github or Marvin tose because they are using those platforms to transfer assists via impact & export etc. I also have to security data of Amazon and the stste department that might help out . 
 
 As well reason to believes Bank manager are also involved in blocking federal assets from properly developing 
+Institute Mind Over Matter Institute
+<!-- Global site tag (gtag.js) - Google Analytics -->
+<script async src="https://www.googletagmanager.com/gtag/js?id=UA-225384820-1">
+</script>
+<script>
+  window.dataLayer = window.dataLayer || [];
+  function gtag(){dataLayer.push(arguments);}
+  gtag('js', new Date());
+
+  gtag('config', 'UA-225384820-1');
+</script>
 
 
+
+
+https-github-com-users-mydubsetstory180
 
